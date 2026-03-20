@@ -3,6 +3,7 @@
 <p align="center">i dont want to talk to minors. you shouldnt even be here in the 18+ server.
 <p align="center">i am okay with inspo but full on colourpicking is where i draw the line!! :I
 <p align="center">im okay with talking and joking about sexual topics.
+<p align="center">do 𝗻𝗼𝘁 flirt with me. ive been in a relationship for almost a year with my boyfriend, but platonical love is obviously ok.
 <p align="center"> i do 𝗻𝗼𝘁 condone proshipping, and dont even hit me with the "fiction doesnt affect reality."
 <p align="center"> im here to relax with my friends! if youre in a mood get off ponytown and head onto tumblr or 4chan.
 <p align="center">‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹ 
