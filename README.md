@@ -6,7 +6,9 @@
 <p align="center"> i do 𝗻𝗼𝘁 condone proshipping, and dont even hit me with the "fiction doesnt affect reality."
 <p align="center"> im here to relax with my friends! if youre going to be a retard youll get a quick block.
 <p align="center">‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
-
+  
+<p align="center"><img src=https://i.postimg.cc/0NCDw03p/565930783-66d7d0e5-7887-49a8-9a4d-21317a70e031.webp= "1">
+<img src=https://i.postimg.cc/Hxs5471T/565930897-82a8b11f-c9fd-4870-a338-26a7e640bae7.webp= "1">
 
 
 
