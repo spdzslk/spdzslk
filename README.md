@@ -1,5 +1,7 @@
 <p align="center">‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
 <p align="center"><img src=https://i.postimg.cc/cCX7YMbB/pony-town-andrew-hussie-trot-blinking-padded-4x-1.gif= "1">
+<p align="center"><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d6b00791-d6b5-4b77-a84a-c5821372d052" />
+
 <p align="center">! 𝗯𝗲𝗳𝗼𝗿𝗲 𝘆𝗼𝘂 𝗶𝗻𝘁𝗲𝗿𝗮𝗰𝘁. !
 <p align="center">i dont want to talk to minors. you shouldnt even be here in the 18+ server.
 <p align="center">i am okay with you taking inspo!
