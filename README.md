@@ -1,4 +1,7 @@
 <p align="center">‧˚₊•┈┈┈┈୨୧┈┈┈┈•‧₊˚⊹
+  
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=spdzslk)
+  
 <p align="center"><img src=https://i.postimg.cc/cCX7YMbB/pony-town-andrew-hussie-trot-blinking-padded-4x-1.gif= "1">
 <p align="center"><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/d6b00791-d6b5-4b77-a84a-c5821372d052" />
 
